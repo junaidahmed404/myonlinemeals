@@ -74,7 +74,7 @@ If you liked this project or have any suggestions, feel free to connect:
 
 📧 Email: bhattijunaidahmed404@gmail.com
 
-💼 LinkedIn: linkedin.com/in/junaidahmed404
+💼 LinkedIn: [linkedin.com/in/junaidahmed404](linkedin.com/in/junaidahmed404)
 
 🐙 GitHub: junaidahmed404
 
